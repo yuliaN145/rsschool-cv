@@ -10,3 +10,16 @@
 
 *Learn a new profession and realize myself in it*
 * * *
+***Strengths***
+- communication skills
+- friendliness
+- responsiveness
+- responsibility 
+- energy
+
+* * *
+***Education:***
+
+Belarusian State University of Economics.
+Specialty accounting analysis and audit
+* * *
