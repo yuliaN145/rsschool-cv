@@ -4,7 +4,8 @@
 
 **Email:** *YuliaV1456@gmail.com*
 
-**Telegram:** *Yulia_V458*  
+**Telegram:** *Yulia_V458*
+**Discord:** *YuliaN145#1680* 
 * * *
 ***Goals***
 
